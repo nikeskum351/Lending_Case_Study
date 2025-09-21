@@ -44,7 +44,7 @@ Give credit here.
 
 
 ## Contact
-Created by [@Sanskriti0204] - feel free to contact me!
+Created by [@Sanskriti0204] and [@Nikesh154] - feel free to contact me!
 
 
 <!-- Optional -->
